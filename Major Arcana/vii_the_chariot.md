@@ -17,3 +17,5 @@
   * Còn nếu hiện tại đã mất phương hướng thì cần cố gắng hơn sẽ vượt qua (chỉ là một giai đoạn).
   * Công việc của bạn có thể sẽ có giai đoạn rất mơ hồ, không có phương hướng rõ ràng tuy nhiên hay cố gắng và vượt qua giai đoạn này vì nó có thể mang lại cơ hội trong tương lại hoặc cái bạn đang làm cần thêm sự nhẫn nại.
   * Còn về tình yêu: Sẽ đến lúc cả hai mất phương hướng nhưng **không phải sự lựa chọn sai** mà chỉ là một giai đoạn hiện tại.
+* Đứng núi này trông núi nọ.
+  * Không cố gắng cho hiện tại mà lại nhìn về một thứ xa xôi.
